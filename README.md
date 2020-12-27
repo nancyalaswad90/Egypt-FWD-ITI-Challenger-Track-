@@ -14,7 +14,7 @@
 ### [Digital Marketing Challenger](https://s3-us-west-2.amazonaws.com/udacity-printer/production/certificates/4cc71c98-5cee-474a-9225-4c4e131134f9.pdf)
 
 
-> ![2020-12-27_141913](https://user-images.githubusercontent.com/36210723/103170668-a0f51f80-484e-11eb-9b2c-bcc4ee47c3d9.png)
+> ![dig](https://user-images.githubusercontent.com/36210723/103170677-c97d1980-484e-11eb-96ab-06df02eefff8.png)
 
 
 
