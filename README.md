@@ -11,7 +11,7 @@
 
 
 
-### [Digital Marketing Challenger]
+### [Digital Marketing Challenger](https://s3-us-west-2.amazonaws.com/udacity-printer/production/certificates/4cc71c98-5cee-474a-9225-4c4e131134f9.pdf)
 
 
 
